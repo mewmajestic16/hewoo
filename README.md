@@ -23,6 +23,12 @@ _I prefer it if someone comes to me first because I'm too shy to approach you wi
 
 _Sometimes I'm quiet and don't join in because I don't have a topic and don't fit in with your topics (°¯᷄◠¯᷅°) But I like listening to the conversation ╹ .̮ ╹_
 
+**I don't like copycats, especially when they claim it as their own property and accuse the original of being a copycat** ( •̀_•́ )
+
+![Image](https://github.com/user-attachments/assets/404bd66e-d5b1-41bf-b682-bf9c81dc9fbd)
+
+**It's not wrong if there are similarities in form due to limitations, but it's impossible to be that similar, but is it really a coincidence?**
+
 `Oh yeah, to my friends, I'm sorry if I don't approach/recognize you if you're in offline mode, my memory is really bad ՞߹ - ߹՞
  I don't know why you guys are doing this but i dont mind bc I also use it sometimes (¬◡¬) wleeeoeoeooe`
 
